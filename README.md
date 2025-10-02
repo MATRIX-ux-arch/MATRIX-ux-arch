@@ -37,7 +37,7 @@ Hey there! 👋 I'm *Wendel Fernandes, passionate about **Cybersecurity 🔒, We
 ---
 
 ## 📫 Let's Connect!  
-💼 *LinkedIn:* [linkedin.com/in/wendelfernandes](#)  
+💼 *LinkedIn:* [https://www.linkedin.com/in/wendel-fernandes/](#)  
 
 💌 Feel free to reach out if you want to collaborate on something amazing!  
 
