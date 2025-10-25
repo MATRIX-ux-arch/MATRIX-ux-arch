@@ -1,4 +1,4 @@
-# 🚀 Wendel Fernandes | Cybersecurity Enthusiast & Developer Extraordinaire 🛡  
+# 🚀 Wendel Fernandes | Cybersecurity Enthusiast & Developer 🛡  
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F7B93E&width=600&lines=Cybersecurity+%7C+Web+Dev+%7C+Tech+Explorer;Pre-Final+Year+Student+from+Goa;Passionate+about+Code+and+Security!)](https://git.io/typing-svg)  
 
